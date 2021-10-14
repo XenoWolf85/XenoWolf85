@@ -1,0 +1,6 @@
+- 👋 Hello, I’m @XenoWolf85
+- 👀 I have an affinity for physics, mathematics, computer science, and more.
+- 🌱 I’m currently learning C, Java, C#, and D.
+- 💞️ I’m looking to collaborate on YouTube.
+- 📫 How to reach me gunplashopza@icloud.com
+- I enjoy watching jdh, Rslash, Brandon Rogers, SML's, and Coding jesus's content.
